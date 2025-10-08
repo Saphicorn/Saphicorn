@@ -32,3 +32,5 @@
 ![.](https://pixels.crd.co/assets/images/gallery87/90d41b90.gif)  *If my pony is sleeping I'm probably afk or offtab but do NOT be afraid to shoot me a whisper or add my discord Ok I LOVE MAKING FRIENDS they call me the friender.*
 
 ![.](https://pixels.crd.co/assets/images/gallery87/94bf5087.gif)  *I'd prefer for full-on roleplayers to like.. DNI. So sorry goats, I'm not a big fan of roleplay but I'm okay if ships interact I think it's fun lowk but don't tell anyone Ok...*
+
+![.](https://64.media.tumblr.com/b4330452c5e611f03fcbd94a9ae823bc/230030998d922809-e1/s400x600/2d49691e1a0a3f3f707d557b2754257ddd35bd33.gifv)
