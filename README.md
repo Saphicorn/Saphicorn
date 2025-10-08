@@ -1,3 +1,34 @@
+![.](https://64.media.tumblr.com/tumblr_m3ou6xlrpq1rripibo1_500.gif)
 
-###### *[about me](#about-me)* - *[interests/fandoms](#interests)* - *[ponytown info](#ponytown-information)*
-![.](https://64.media.tumblr.com/d882036b3931f74c188f576eeaf2a8ee/d74387bbfa9eb3e2-7e/s400x600/4bdb0c489f2017226df8e279a9331df5ce4357a2.gifv)
+
+###### *[about me](#about-me)* - *[interests/fandoms](#interests)* - *[ponytown info](#ponytown-information)*  ![.](https://pixels.crd.co/assets/images/gallery52/6a977acf.gif)
+
+ 
+![.](https://64.media.tumblr.com/b4330452c5e611f03fcbd94a9ae823bc/230030998d922809-e1/s400x600/2d49691e1a0a3f3f707d557b2754257ddd35bd33.gifv)
+
+## ABOUT ME
+![.](https://pixels.crd.co/assets/images/gallery87/94bf5087.gif)  *HIHIHI!!! My name's **Saph**, but I also go by **Bee** or **Swindle**. I'm an evil transmasc enby.*
+
+![.](https://pixels.crd.co/assets/images/gallery87/90d41b90.gif)  *Fictive-heavy OSDD-1b system with AuDHD, anxiety, and a bunch of other stuff PLEASE be patient with us!*
+
+![.](https://pixels.crd.co/assets/images/gallery87/94bf5087.gif)  *Extremely anxious, and I tend to get annoying very fast when I get comfortable with someone.. please don't be afraid to tell me when I get to be too much! I won't be offended, I'm trying to improve Ok?*
+
+![.](https://pixels.crd.co/assets/images/gallery87/90d41b90.gif)  *PLEASE interact if you have the same interests as me I need more cool people to talk to. I'm goated trust me.*
+
+![.](https://64.media.tumblr.com/b4330452c5e611f03fcbd94a9ae823bc/230030998d922809-e1/s400x600/2d49691e1a0a3f3f707d557b2754257ddd35bd33.gifv)
+
+## INTERESTS
+![.](https://pixels.crd.co/assets/images/gallery87/94bf5087.gif)  *BIG Transformers (specifically TFA, One, and RB) hyperfixation atm..*
+
+![.](https://pixels.crd.co/assets/images/gallery87/90d41b90.gif)  *Chuck E. Cheese + Showbiz Pizza spinterests.. ask me about it it's been going on for as long as I remember.*
+
+![.](https://pixels.crd.co/assets/images/gallery87/94bf5087.gif)  *I also lovelovelove ULTRAKILL, Parappa the Rapper + Um Jammer Lammy, Katamari Damacy, and DSaF!!*
+
+![.](https://64.media.tumblr.com/b4330452c5e611f03fcbd94a9ae823bc/230030998d922809-e1/s400x600/2d49691e1a0a3f3f707d557b2754257ddd35bd33.gifv)
+
+## PONYTOWN INFORMATION
+![.](https://pixels.crd.co/assets/images/gallery87/94bf5087.gif)  *ALWAYS C+H and INT when I'm online and about okay. Come up to me whenever and play and have fun.. sit next to me, cover me, hide behind me, boop me, lick me.. I DONT CARE! I LOVE INTERACTION!!!!*
+
+![.](https://pixels.crd.co/assets/images/gallery87/90d41b90.gif)  *If my pony is sleeping I'm probably afk or offtab but do NOT be afraid to shoot me a whisper or add my discord Ok I LOVE MAKING FRIENDS they call me the friender.*
+
+![.](https://pixels.crd.co/assets/images/gallery87/94bf5087.gif)  *I'd prefer for full-on roleplayers to like.. DNI. So sorry goats, I'm not a big fan of roleplay but I'm okay if ships interact I think it's fun lowk but don't tell anyone Ok...*
