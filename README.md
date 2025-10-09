@@ -1,5 +1,9 @@
 ![.](https://64.media.tumblr.com/tumblr_m3ou6xlrpq1rripibo1_500.gif)
 
+ 
+
+![](https://komarev.com/ghpvc/?username=Saphicorn&color=blue&style=plastic&label=profile+views!)
+
 
 ###### *[about me](#about-me)* - *[interests/fandoms](#interests)* - *[ponytown info](#ponytown-information)*  ![.](https://pixels.crd.co/assets/images/gallery52/6a977acf.gif)
 
