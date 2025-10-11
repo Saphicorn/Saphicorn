@@ -1,6 +1,6 @@
 ![.](https://64.media.tumblr.com/tumblr_m3ou6xlrpq1rripibo1_500.gif)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=gldfm4w6r9ki7kd6xvsvwr1wv&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=true&profanity=false&mode=dark&bar_color=4f53ee&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=gldfm4w6r9ki7kd6xvsvwr1wv&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=5f53f4&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
 
 ###### *[about me](#about-me)* - *[interests/fandoms](#interests)* - *[ponytown info](#ponytown-information)*  ![.](https://pixels.crd.co/assets/images/gallery52/6a977acf.gif)
 
