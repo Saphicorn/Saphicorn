@@ -23,7 +23,7 @@
 
 ![.](https://pixels.crd.co/assets/images/gallery87/90d41b90.gif)  *Chuck E. Cheese + Showbiz Pizza spinterests.. ask me about it it's been going on for as long as I remember.*
 
-![.](https://pixels.crd.co/assets/images/gallery87/94bf5087.gif)  *I also lovelovelove Parappa the Rapper + Um Jammer Lammy, WarioWare, Katamari Damacy, The Nightmare Before Christmaas, and DSaF!!*
+![.](https://pixels.crd.co/assets/images/gallery87/94bf5087.gif)  *I also lovelovelove Parappa the Rapper + Um Jammer Lammy, WarioWare, Katamari Damacy, The Nightmare Before Christmas, and DSaF!!*
 
 ![.](https://pixels.crd.co/assets/images/gallery87/90d41b90.gif)  *I have TONS of other interests not listed.. too many to count ok.*
 
