@@ -19,11 +19,11 @@
 ![.](https://64.media.tumblr.com/b4330452c5e611f03fcbd94a9ae823bc/230030998d922809-e1/s400x600/2d49691e1a0a3f3f707d557b2754257ddd35bd33.gifv)
 
 ## INTERESTS
-![.](https://pixels.crd.co/assets/images/gallery87/94bf5087.gif)  *BIG Transformers (specifically TFA, One, and RB) hyperfixation atm..*
+![.](https://pixels.crd.co/assets/images/gallery87/94bf5087.gif)  *BIG Transformers (specifically TFA, One, and RB) and ULTRAKILL hyperfixations atm..*
 
 ![.](https://pixels.crd.co/assets/images/gallery87/90d41b90.gif)  *Chuck E. Cheese + Showbiz Pizza spinterests.. ask me about it it's been going on for as long as I remember.*
 
-![.](https://pixels.crd.co/assets/images/gallery87/94bf5087.gif)  *I also lovelovelove ULTRAKILL, Parappa the Rapper + Um Jammer Lammy, Katamari Damacy, and DSaF!!*
+![.](https://pixels.crd.co/assets/images/gallery87/94bf5087.gif)  *I also lovelovelove Parappa the Rapper + Um Jammer Lammy, WarioWare, Katamari Damacy, The Nightmare Before Christmaas, and DSaF!!*
 
 ![.](https://pixels.crd.co/assets/images/gallery87/90d41b90.gif)  *I have TONS of other interests not listed.. too many to count ok.*
 
