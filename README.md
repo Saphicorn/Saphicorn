@@ -8,7 +8,7 @@
 ![.](https://64.media.tumblr.com/b4330452c5e611f03fcbd94a9ae823bc/230030998d922809-e1/s400x600/2d49691e1a0a3f3f707d557b2754257ddd35bd33.gifv)
 
 ## ABOUT ME
-![.](https://pixels.crd.co/assets/images/gallery87/94bf5087.gif)  *HIHIHI!!! My name's **Saph**, but I also go by **Bee** or **Swindle**. I'm an evil transmasc enby.*
+![.](https://pixels.crd.co/assets/images/gallery87/94bf5087.gif)  *HIHIHI!!! My name's **Saph**, but I also go by **Bee**, **Swindle**, and **V2**. I'm an evil transmasc enby.*
 
 ![.](https://pixels.crd.co/assets/images/gallery87/90d41b90.gif)  *Fictive-heavy OSDD-1b system with AuDHD, anxiety, and a bunch of other stuff PLEASE be patient with us!*
 
