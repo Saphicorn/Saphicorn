@@ -1,4 +1,4 @@
-<p align="left"><i>"i am a <ins>good person</ins>.</i></p>
+<p align="left"><i>"im a good person.</i></p>
 <p align="right"><i><a href="https://www.youtube.com/watch?v=pYOPOd7AKuY">...is this thing on?</a>"</i></p>
 
 <p align="center">
