@@ -4,8 +4,12 @@
 <p align="center">
 <img width="250" height="250" src="https://i.ibb.co/FqjHVFCZ/Untitled816-20260419014901.png"/>
 </p>
+
+<div align="center">
   
-   
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=gldfm4w6r9ki7kd6xvsvwr1wv&cover_image=true&theme=novatorem&show_offline=false&background_color=a3e8fc&interchange=false&profanity=false&bar_color=a3e8fc&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=gldfm4w6r9ki7kd6xvsvwr1wv&redirect=true)
+
+<div align="center">
 
 <p align="center">
 <img width="300" height="30" src="https://64.media.tumblr.com/a43db1e911e8107f35119622df772e52/b15d23a765658ea4-3d/s500x750/b375684249759e5e0f532a71ddac97472a6f07d6.pnj"/>
@@ -68,10 +72,3 @@
 <p align="center">
 <img width="300" height="30" src="https://64.media.tumblr.com/a43db1e911e8107f35119622df772e52/b15d23a765658ea4-3d/s500x750/b375684249759e5e0f532a71ddac97472a6f07d6.pnj"/>
 </p>
-
-
-<div align="center">
-  
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=gldfm4w6r9ki7kd6xvsvwr1wv&cover_image=true&theme=novatorem&show_offline=false&background_color=a3e8fc&interchange=false&profanity=false&bar_color=a3e8fc&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=gldfm4w6r9ki7kd6xvsvwr1wv&redirect=true)
-
-<div align="center">
