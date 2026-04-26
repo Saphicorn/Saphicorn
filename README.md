@@ -1,3 +1,6 @@
+<p align="left"><i>"i am a <ins>good person</ins>.</i></p>
+<p align="right"><i><a href="https://www.youtube.com/watch?v=pYOPOd7AKuY">...is this thing on?</a>"</i></p>
+
 <p align="center">
 <img width="250" height="250" src="https://i.ibb.co/FqjHVFCZ/Untitled816-20260419014901.png"/>
 </p>
