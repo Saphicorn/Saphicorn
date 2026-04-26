@@ -31,7 +31,7 @@
 </p>
 
 <p align="center">
-<ins><b><i>f</i></b>ict</ins>ive &ensp;<b><i>h</b>ea<ins>vy</ins> &ensp;<ins><b><i>s</i></b>ys</ins>tem
+<ins><b><i>f</i></b>ict</ins>ive &ensp;<b><i>h</i></b>ea<ins>vy</ins> &ensp;<ins><b><i>s</i></b>ys</ins>tem
 </p>
 
 <p align="center">╰── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╯</p>
